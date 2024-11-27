@@ -1,4 +1,4 @@
-# Hi there, I'm [Your Name]! 👋
+# Hi there, I'm Danwe Basga! 👋
 
 🚀 **Software Engineer** | 🌍 **Real Estate Tech Enthusiast** | 📊 **Machine Learning Engineer**  
 
